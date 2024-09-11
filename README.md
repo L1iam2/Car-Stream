@@ -13,3 +13,9 @@ Simple Car Steam Folder to Stream Cars
 4) Start the Recourse !! 
 
 And You are Done 
+
+
+
+Stuck ?
+
+Look at the Files There is a Car Already in There Just Check and You Should Fine it Pretty Straight Forward
